@@ -1,1 +1,1 @@
-GMO Z.com
+GMO Z.c
